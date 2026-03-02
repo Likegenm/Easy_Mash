@@ -15,5 +15,5 @@
 
 Credits:
 
-- Likegenm (discord: ```
+- Likegenm (discord: https://discord.com/channels/@me/1478093349134008543
 - Pepel (discord: https://discord.com/channels/@me/1406954503927758931
